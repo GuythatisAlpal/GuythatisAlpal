@@ -2,4 +2,4 @@
 
 Hello my name is Alex Quinones A.K.A Alpal.
 
-Fortnite
+I am an aspring writer and program developer
